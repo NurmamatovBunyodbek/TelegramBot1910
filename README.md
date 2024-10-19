@@ -1,0 +1,1 @@
+Imtihonga berilgan 
